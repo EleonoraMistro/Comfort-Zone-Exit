@@ -15,7 +15,7 @@ Grazie alla contaminazione tra le persone e delle loro storie, competenze o anch
 
 👀 Posso leggere le tue parole qui su GitHub, Linkedin o Telegram
 
-🫂 Posso accogliere anche il tuo silenzio perchè significa che stai riflettendo
+🫂 Posso accogliere anche il tuo silenzio perchè significa ad esempio che stai riflettendo (oppure no)
 
 A presto👋🏼
 
