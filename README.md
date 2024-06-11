@@ -13,6 +13,7 @@ Perchè?
 Grazie alla contaminazione tra le persone e delle loro storie, competenze o anche solo di un sorriso si intraprende il viaggio dell'apprendimento continuo👣👣👣
 
 👂🏼Posso ascoltarti e prenota qui: https://calendly.com/eleonora-mistro/consulenza-hr-marketing
+
 👀 Posso leggere le tue parole qui su GitHub, Linkedin o Telegram
 
 
