@@ -9,7 +9,9 @@ Se sei curios* ti lascio alla lettura di alcuni annedoti della mia storia person
 
 Episodio 1^ https://bit.ly/4aVffBL
 
-Ora tocca a te: 🔗condivido qualcosa anche tu
+Ora tocca a te👉🏼
+
+🔗condividi qualcosa anche tu
 
 Perchè?
 
