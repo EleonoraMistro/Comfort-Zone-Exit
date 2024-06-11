@@ -17,7 +17,8 @@ Grazie alla contaminazione tra le persone e delle loro storie, competenze o anch
 
 👀 Posso leggere le tue parole qui su GitHub, Linkedin o Telegram
 
-![Uploading GodzillaDanceGIF.gif…]()
+![DSC_2095](https://github.com/EleonoraMistro/Comfort-Zone-Exit/assets/171784445/d73e8862-7068-4541-886a-f10a65eb72cc)
+
 
 
 
