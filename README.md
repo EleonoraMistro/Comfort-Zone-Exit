@@ -1,7 +1,7 @@
 # Comfort-Zone-Exit
 Perchè è importante uscire dalla Comfort Zone?
 Uscire dalla propria Comfort Zone può sembrare spaventoso  😱
-Ma è un passo fondamentale per la tua  crescita personale e (non solo), perchè ti spinge a imparare, scoprire chi sei e chi puoi diventare. Infine ti aiuta a costruire  fiducia in te stesso e regalarti un sorriso per il traguardo raggiunto.
+Ma è un passo fondamentale per la tua  crescita personale e (non solo), perchè ti spinge a imparare, scoprire chi sei e chi puoi diventare. Infine ti aiuta a costruire  fiducia in te stesso e regalarti un sorriso 😁per il traguardo raggiunto.
 
 Che ne pensi?🗨️🗨️🗨️
 
