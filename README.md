@@ -7,7 +7,7 @@ Che ne pensi?🗨️🗨️🗨️
 
 Se sei curios* ti lascio alla lettura di alcuni annedoti della mia storia personale
 
-Episodio 1^ https://bit.ly/4aVffBL
+Episodio 1^ https://bit.ly/4aVffBL (Spoiler🤐: Foto in basso)
 
 Ora tocca a te👉🏼 condividi qualcosa anche tu ... Perchè?
 
