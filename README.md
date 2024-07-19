@@ -8,6 +8,7 @@ Se sei curios* di scoprire di più sul tema ti lascio alla lettura di alcuni ann
 - Episodio 1^ https://bit.ly/4aVffBL (Spoiler🤐: Foto in basso)
 - Episodio 2^ https://bit.ly/45t60ry (Spoiler🤐: TEDxPutignagno. Theme: Mistake)
 - Episodio 3^ https://bit.ly/3W6YQER (Spoiler🤐: TEDxModena. Theme Networking)
+- Episodio 4^ https://bit.ly/4f1SmzQ (Spoiler🤐: Libro. "Cosa sarà da grande")
   
 Ora tocca a te👉🏼 condividi qualcosa anche tu ... Perchè?
 
