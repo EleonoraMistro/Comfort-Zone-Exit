@@ -5,7 +5,7 @@ Ma è un passo fondamentale per la tua  crescita personale e (non solo), perchè
 
 Se sei curios* di scoprire di più sul tema ti lascio alla lettura di alcuni annedoti della mia storia personale in modalità serie TV👇🏼:
 
-- Episodio 1^ https://bit.ly/4aVffBL (Spoiler🤐: Foto in basso)
+- Episodio 1^ https://bit.ly/3YWZHL9 (Spoiler🤐: Foto in basso)
 - Episodio 2^ https://bit.ly/4hSwZTc (Spoiler🤐: TEDxPutignagno. Theme: Mistake)
 - Episodio 3^ https://bit.ly/3YKFLdf (Spoiler🤐: TEDxModena. Theme: Networking)
 - Episodio 4^ https://bit.ly/4fwO03g (Spoiler🤐: Libro. "Cosa sarà da grande")
