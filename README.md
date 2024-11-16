@@ -8,7 +8,7 @@ Se sei curios* di scoprire di più sul tema ti lascio alla lettura di alcuni ann
 - Episodio 1^ https://bit.ly/3YWZHL9 (Spoiler🤐: Foto in basso)
 - Episodio 2^ https://bit.ly/4hSwZTc (Spoiler🤐: TEDxPutignagno. Theme: Mistake)
 - Episodio 3^ https://bit.ly/3YKFLdf (Spoiler🤐: TEDxModena. Theme: Networking)
-- Episodio 4^ https://bit.ly/4fwO03g (Spoiler🤐: Libro. "Cosa sarà da grande")
+- Episodio 4^ https://bit.ly/4fwO03g (Spoiler🤐: Libro. "Cosa sarò da grande")
 - Episodio 5^ https://bit.ly/4emlmAP (Spoiler🤐: Strumenti: Business Model Canvas)
   
 Ora tocca a te👉🏼 condividi qualcosa anche tu ... Perchè?
